@@ -1,2 +1,2 @@
 # COSC450
-A middle finger Salisbury Universities most trash comptuer science professor.
+A middle finger Salisbury Universitie's most trash comptuer science professor.
